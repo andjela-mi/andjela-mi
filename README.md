@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @andjela-mi, Information technology student at Faculty of Organizational Sciences.
+- 👋 Hi, I’m Andjela, Information technology student at Faculty of Organizational Sciences.
 
 - 📫 My LinkedIn profile: https://www.linkedin.com/in/andjela-mircetic/
 
